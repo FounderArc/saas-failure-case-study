@@ -73,6 +73,8 @@ I build and share content about:
 - Automation
 - Startups
 - Building in public
+-  Follow my journey 🚀
+link ot these youtube video:-https://youtu.be/0TWNiQzvE2E?si=JvYkWF4q6mRMEy7s
 
-Follow my journey 🚀
 
+       
